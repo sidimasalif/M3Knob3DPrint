@@ -8,6 +8,3 @@
 
 - 📫 How to reach me **DM On Discord "sidimas#9560"**
 
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
